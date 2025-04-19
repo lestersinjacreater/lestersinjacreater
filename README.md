@@ -23,7 +23,7 @@ I’m **Lester Sinja**, self‑appointed Overlord of Dark Code and part‑time s
 ---
 
 ### 📫 Summon Me
-- **Email**: lestersinja (at) darkmail (dot) kenya  
+- **Email**: lestetsinjawatosia@gmail.com  
 - **X (Twitter)**: [@Lester_Sinja](https://x.com/Lester_Sinja)  
 - **Carrier Raven**: Currently on backorder.  
 
